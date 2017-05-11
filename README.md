@@ -1,0 +1,1 @@
+# vgm-s-blog-page
